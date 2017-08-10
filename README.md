@@ -1,1 +1,0 @@
-# SakuyaIwahashi.github.io
